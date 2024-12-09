@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @caseyyy666
-- 👀 I’m interested in learning how to change settings on my phone
+- 👀 I’m interested in learning how to change settings on my phone and the basics of coding
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on money ideassss
 - 📫 How to reach me here
